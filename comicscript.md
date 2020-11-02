@@ -11,3 +11,9 @@
 **Smush's Mom**: Here's Smush. I'm driving.
 **Smush**: Hi, Auntie!
 **Aunt Ella**: Hi, Smush!
+**Smush**: Did you get us that lamp?
+**Aunt Ella**: No.
+(Smush Hangs Up.)
+**Smush's Mom**: Why'd you hang up?
+**Smush**: She said no.
+**Smush's Mom**: Smush...
